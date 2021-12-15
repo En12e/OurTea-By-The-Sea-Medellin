@@ -1,1 +1,1 @@
-# OurTea By The Sea Medellin
+# OurTeaByTheSeaMedellin
